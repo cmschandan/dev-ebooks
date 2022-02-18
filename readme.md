@@ -1,1 +1,3 @@
 ### Find Ebooks Free 
+## For Educational Purpose Only
+# Share it With your Developer friends and Colleagues...
